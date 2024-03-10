@@ -1,0 +1,1 @@
+# obraz-na-stron-GZ
